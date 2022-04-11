@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: jhufchfuvhghvfbhvf
 - ⚡ Fun fact: uh...
 -->
+https://tinyurl.com/yat8vhd2
+https://tinyurl.com/ydxbwknb
+https://tinyurl.com/y84z37nf
